@@ -33,4 +33,4 @@ I would like to thank Upgrad and IIIT Bangalore for giving me a chance to work o
 
 
 ## Contact
-Created by Arti Saraswat (Aarti11) - feel free to contact me!
+Created by Priyanka Gupta (pg0211) - feel free to contact me!
